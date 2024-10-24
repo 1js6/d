@@ -41,3 +41,6 @@ Link tải: [DOWNLOAD](https://phanmemnet.com/tai-stick-war-legacy-mod-apk-vo-ha
 
 ## Hướng dẫn
 - Tải về máy android, cài đặt và chơi
+
+![image](https://github.com/user-attachments/assets/4667ed99-8ca5-4578-990d-954ede2ffe5f)
+
